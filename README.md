@@ -1,2 +1,2 @@
 # Drink
-Long alive Marxism! Long alive People!
+Long live Marxism! Long live People!
