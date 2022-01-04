@@ -1,2 +1,2 @@
 # Drink
-this is my first project about my personal
+Long alive Marxism! Long alive People!
